@@ -2,23 +2,22 @@
 *Fill every [BRACKET] before sending. Not legal advice. This version is sent BEFORE you submit the ARC application.*
 
 **To:** James Callahan <jcallahan@seacrestsw.com>
-**Cc:** [Board president – name]
 **Subject:** 2700 Via San Latina Ct – Questions Before Submitting ARC Application, Fine Review, Account Correction
 
 ---
 
 Hi James,
 
-Thank you for your October 8 note and for the kind words about our son. I'm preparing the retroactive ARC application you suggested and want to confirm a few steps first. This message covers my questions, my concerns about the fine, and a correction needed on my account. I'm copying [Board president] so we're all working from the same information.
+Thank you for your October 8 note and for the kind words about our son. I'm preparing the retroactive ARC application you suggested and want to confirm a few steps first. This message covers my questions, my concerns about the fine, and a correction needed on my account.
 
 **1. What the application will cover**
 
-I've been going through the rule books and honestly didn't understand how far the rules reach on this. I plan to submit through AppFolio by [date], sooner if you can confirm the steps below.
+I've been going through the rule books and honestly didn't understand how far the rules reach on this. I plan to submit through AppFolio by Friday, 10/30, sooner if you can confirm the steps below.
 
-- **Screening plants:** three [variety] Clusia, planted in the ground on or about June 10, 2026 (receipt dated June 9) to screen the bins from the street. Clusia is on the Rules' recommended shrub list (§17). [If true: They were planted where [plant] had died.]
-- **Pavers:** a small section of pavers, a short path beside the driveway, around the corner, so we can walk the bins out. It is not an extension of the driveway [and is inside our lot lines and outside any easement]. I'll include it in the application.
+- **Screening plants:** three Clusia, planted in the ground on or about June 10, 2026 to screen the bins from the street. Clusia is on the Rules' recommended shrub list (§17).
+- **Pavers:** a small section of pavers, a short path beside the driveway, around the corner, so we can walk the bins out. It is not an extension of the driveway. The pavers are spaced about 1.5" apart, with the existing red rock between them. I'll include it in the application.
 - **Landscape refresh:** we are also replacing some dead plants and refreshing the beds with new rock and mulch.
-- **Interim step:** [until the plants fill in, we are keeping the bins in the garage except on collection days (Rule 14(f))].
+- **Interim step:** until the plants fill in, we are keeping the bins in the garage except on collection days (Rule 14(f)).
 
 **2. The 12-month growth provision**
 
@@ -55,16 +54,15 @@ On October 5 I paid $423.00 (confirmation 9DC3-05F0), my regular quarterly asses
 
 - Please hold the fine, with no interest, late fees, collection steps, or referral to counsel, and no new violation for the same plants while the application is prepared and reviewed.
 - Please put this on the agenda for the next Board meeting. I'd like to speak and can share documentation of our circumstances.
-- Please reply in writing by [date, about 5 business days out].
+- Please reply in writing as soon as possible, ideally by Thursday, 10/29, so I can reflect your answers in Friday's submission.
 
 This is sent with a full reservation of my rights, and nothing here is an admission. We want to resolve this cooperatively, and I appreciate your help.
 
 Thank you,
 Cristian Corrales
 2700 Via San Latina Ct, Fort Myers, FL 33905
-[phone]
 
-*Attachments: [current street-view photos] · [receipt 6/9/26] · [ledger screenshot] · [10/5 payment confirmation]*
+*Attachments: [current street-view photos] · [ledger screenshot] · [10/5 payment confirmation]*
 
 ---
 
